@@ -1,4 +1,4 @@
-# Hellou!! meu nome é Amanda Estrela💫
+# Hellou!! eu sou a Amanda Estrela💫
 - 👩‍🎓 Estudante de Sistemas de Informação na Universidade Federal de Uberlândia 
 - 🏎️ Admiradora por carros de corrida 
   
