@@ -1,4 +1,7 @@
-# Hellou!! eu sou a Amanda Estrela💫
+# Oiee!! eu sou a Amanda Estrela💫
+
+"Girls who code white the future" 
+
 - 👩‍🎓 Estudante de Sistemas de Informação na Universidade Federal de Uberlândia 
 - 🏎️ Admiradora por carros de corrida 
   
